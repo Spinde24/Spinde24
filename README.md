@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Spinde24
 - 👀 I’m interested in travels, sneakers, sports, american culture and music
 - 🌱 I’m currently learning, and I will never stop. 
-- 💞️ I’m looking to collaborate on projects about topics I love
+- 💞️ I’m looking to collaborate with sport's companies
 - 📫 How to reach me @spindeee or davide.spizzichino@opendeusto.es
 
 <!---
